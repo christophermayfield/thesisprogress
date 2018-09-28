@@ -6,3 +6,4 @@ Today, I made the repo. This is going to be the final push for my thesis. So now
 #September 29th, 2018 
 
 On Saturday, I am going to watch a video on how to data clean and recode in Excel, since that is something that is vital to the research project. 
+

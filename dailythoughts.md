@@ -9,4 +9,7 @@ on currently with my thesis.
 
 
 # October 1st 2018
-I feel better right now. I fixed my issue with my teaching permit, so i'm able to teach again. 
+I feel better right now. I fixed my issue with my teaching permit, so i'm able to teach again.
+
+# October 3rd 2018
+I accepted some jobs for next week, so that's good.

@@ -13,3 +13,6 @@ I feel better right now. I fixed my issue with my teaching permit, so i'm able t
 
 # October 3rd 2018
 I accepted some jobs for next week, so that's good.
+
+# October 9th 2018
+I haven't been sleeping well, I'm going to get some simple work done at home and then hit it again tomorrow. 

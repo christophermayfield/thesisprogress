@@ -11,3 +11,8 @@ On Saturday, I am going to watch a video on how to data clean and recode in Exce
 #October 1st, 2018
 
 Today, I went to CBU with Karina, I rode an electric scooter for the first time, which was awesome. I finally watched that video on how to recode data, but i'm still entirely sure. I'm going to consult more tomorrow.
+
+
+#October 9th, 2018
+
+Today I was tired from not sleeping well the previous night. I made some headway with cleaning some of the data. Still stuck on another part of categorizing my various regarding my eudaimonia scale. I'm going to consult with a friend regarding this. 

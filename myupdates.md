@@ -15,4 +15,10 @@ Today, I went to CBU with Karina, I rode an electric scooter for the first time,
 
 #October 9th, 2018
 
-Today I was tired from not sleeping well the previous night. I made some headway with cleaning some of the data. Still stuck on another part of categorizing my various regarding my eudaimonia scale. I'm going to consult with a friend regarding this. 
+Today I was tired from not sleeping well the previous night. I made some headway with cleaning some of the data. Still stuck on another part of categorizing my various regarding my eudaimonia scale. I'm going to consult with a friend regarding this.
+
+
+#October 23rd, 2018
+
+Today, I watched some more videos on data cleaning. Trying to get back on the horse. Having this repo has shown me how little
+progress I have made as of late. 

@@ -21,4 +21,9 @@ Today I was tired from not sleeping well the previous night. I made some headway
 #October 23rd, 2018
 
 Today, I watched some more videos on data cleaning. Trying to get back on the horse. Having this repo has shown me how little
-progress I have made as of late. 
+progress I have made as of late.
+
+
+#October 27th, 2018
+
+Today, I worked on some excel code writing. I also categorized some other tasks i need to do . 

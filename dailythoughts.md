@@ -15,4 +15,8 @@ I feel better right now. I fixed my issue with my teaching permit, so i'm able t
 I accepted some jobs for next week, so that's good.
 
 # October 9th 2018
-I haven't been sleeping well, I'm going to get some simple work done at home and then hit it again tomorrow. 
+I haven't been sleeping well, I'm going to get some simple work done at home and then hit it again tomorrow.
+
+# October 27th 2018
+I worked a full day today. I Haven't been eating very well. I think that it is starting to catch up to me.
+I also started fasting, which has been helping curb my eating. I also have been tracking my water and food intake.

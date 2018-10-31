@@ -21,7 +21,11 @@ I haven't been sleeping well, I'm going to get some simple work done at home and
 I worked a full day today. I Haven't been eating very well. I think that it is starting to catch up to me.
 I also started fasting, which has been helping curb my eating. I also have been tracking my water and food intake.
 
-
 #October 28th, 2018
 I haven't been feeling well physically. I need to start eating better and taking my health more seriously.
-I am considering maybe going to the doctor soon. 
+I am considering maybe going to the doctor soon.
+
+#October 29th, 2018
+I'm still not feeling the best. I woke up with a large headache and really sneezy.
+I'm assuming that this is from allergies, but i'm going to follow up with a doctor.
+I wrote some code for my thesis which is nice. Im going to work on some tomorrow. 

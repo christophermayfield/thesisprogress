@@ -26,4 +26,8 @@ progress I have made as of late.
 
 #October 27th, 2018
 
-Today, I worked on some excel code writing. I also categorized some other tasks i need to do . 
+Today, I worked on some excel code writing. I also categorized some other tasks i need to do .
+
+#November 11th, 2018
+
+I have been sick for the past few days. I haven't made any progress on anything. I hope to make some soon. 

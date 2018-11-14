@@ -28,4 +28,10 @@ I am considering maybe going to the doctor soon.
 #October 29th, 2018
 I'm still not feeling the best. I woke up with a large headache and really sneezy.
 I'm assuming that this is from allergies, but i'm going to follow up with a doctor.
-I wrote some code for my thesis which is nice. Im going to work on some tomorrow. 
+I wrote some code for my thesis which is nice. Im going to work on some tomorrow.
+
+#November 14th, 2018
+
+Looking back at where I am in life. I realize that I need to figure out what is best for me.
+I really am disappointed that I haven't been able to find meaningful work. I want to be able to find
+work that gives me a large degree of meaning. I hope that I find this. 

@@ -30,4 +30,9 @@ Today, I worked on some excel code writing. I also categorized some other tasks 
 
 #November 11th, 2018
 
-I have been sick for the past few days. I haven't made any progress on anything. I hope to make some soon. 
+I have been sick for the past few days. I haven't made any progress on anything. I hope to make some soon.
+
+
+#November 14th, 2018
+
+I still am feeling sick. I need some money so I decided to take a half day job at troy. I hope to wake up tomorrow and feel better and be able to get some work done. 

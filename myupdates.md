@@ -35,4 +35,8 @@ I have been sick for the past few days. I haven't made any progress on anything.
 
 #November 14th, 2018
 
-I still am feeling sick. I need some money so I decided to take a half day job at troy. I hope to wake up tomorrow and feel better and be able to get some work done. 
+I still am feeling sick. I need some money so I decided to take a half day job at troy. I hope to wake up tomorrow and feel better and be able to get some work done.
+
+#February 17th, 2019
+
+First post of the new years. I am excited to be the year that I get this done. I am making some serious progress. I have wrote some excel recode data, which is pretty awesome. I'm glad to be back on this habitually. 

@@ -39,4 +39,8 @@ I still am feeling sick. I need some money so I decided to take a half day job a
 
 #February 17th, 2019
 
-First post of the new year. I am excited to be the year that I get this done. I am making some serious progress. I have wrote some excel recode data, which is pretty awesome. I'm glad to be back on this habitually. 
+First post of the new year. I am excited to be the year that I get this done. I am making some serious progress. I have wrote some excel recode data, which is pretty awesome. I'm glad to be back on this habitually.
+
+#February 19th, 2019
+
+No work done today. 

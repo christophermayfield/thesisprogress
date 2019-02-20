@@ -43,4 +43,4 @@ First post of the new year. I am excited to be the year that I get this done. I 
 
 #February 19th, 2019
 
-No work done today. 
+No work done today. I'm hoping to work at Fullerton High School Tomorrow 

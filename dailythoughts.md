@@ -34,4 +34,8 @@ I wrote some code for my thesis which is nice. Im going to work on some tomorrow
 
 Looking back at where I am in life. I realize that I need to figure out what is best for me.
 I really am disappointed that I haven't been able to find meaningful work. I want to be able to find
-work that gives me a large degree of meaning. I hope that I find this. 
+work that gives me a large degree of meaning. I hope that I find this.
+
+#February 20th, 2019
+
+I have been coughing alot for months. My spirits are starting to get a little down. s

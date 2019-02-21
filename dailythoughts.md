@@ -42,4 +42,4 @@ I have been coughing alot for months. My spirits are starting to get a little do
 
 #February 21st, 2019
 
-Reading Sam Altman's blog on 
+Reading Sam Altman's blog on How To Be Successful. It's 

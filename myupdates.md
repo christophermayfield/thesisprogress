@@ -47,4 +47,4 @@ No work done today. I'm hoping to work at Fullerton High School Tomorrow.
 
 #February 20th, 2019
 
-No work done today. I went to the gym and I am working a full day at Sonora tomorrow. 
+No work done today. I went to the gym and I am working a full day at Sonora tomorrow. I hopefully will be able to sit down and get some simple work done. Maybe some deep work if it will allow me. 

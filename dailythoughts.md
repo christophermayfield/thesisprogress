@@ -38,4 +38,4 @@ work that gives me a large degree of meaning. I hope that I find this.
 
 #February 20th, 2019
 
-I have been coughing alot for months. My spirits are starting to get a little down. s
+I have been coughing alot for months. My spirits are starting to get a little down. I think that I need to go to the doctor. I'm probably going to call to make an appointment. 

@@ -42,4 +42,4 @@ I have been coughing alot for months. My spirits are starting to get a little do
 
 #February 21st, 2019
 
-Reading Sam Altman's blog on How To Be Successful. It's really enlightening. I'm here doing this right now at Sonora HS in La Habra. My main goal this is to be able to develop more self-belief in myself. I know that I am ordained to be able to do more in my life. I just need to harness that and believe more in myself. 
+Reading Sam Altman's blog on How To Be Successful. It's really enlightening. I'm here doing this right now at Sonora HS in La Habra. My main goal this is to be able to develop more self-belief in myself. I know that I am ordained to be able to do more in my life. I just need to harness that and believe more in myself. I am going to go to the gym tonight for a bit then go home and rest since I am not feeling all that great. 

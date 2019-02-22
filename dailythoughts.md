@@ -47,4 +47,4 @@ Reading Sam Altman's blog on How To Be Successful. It's really enlightening. I'm
 
 #February 22nd, 2019
 
-I went through Sam Altman's blog on How To Be Successful again today. I was shocked how little I actually do in my life. 
+I went through Sam Altman's blog on How To Be Successful again today. I was shocked how little I actually do in my life. Now, I want to change my work habits in order to be a more successful person. 

@@ -47,4 +47,8 @@ No work done today. I'm hoping to work at Fullerton High School Tomorrow.
 
 #February 20th, 2019
 
-No work done today. I went to the gym and I am working a full day at Sonora tomorrow. I hopefully will be able to sit down and get some simple work done. Maybe some deep work if it will allow me. 
+No work done today. I went to the gym and I am working a full day at Sonora tomorrow. I hopefully will be able to sit down and get some simple work done. Maybe some deep work if it will allow me.
+
+#February 21st, 2019
+
+No work done on my thesis today. I mostly read Sam Altman's blog on how to more be more successful in your life. I am noticing that i am getting more distracted by people that are around me. 

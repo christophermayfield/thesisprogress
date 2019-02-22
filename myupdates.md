@@ -51,4 +51,4 @@ No work done today. I went to the gym and I am working a full day at Sonora tomo
 
 #February 21st, 2019
 
-No work done on my thesis today. I mostly read Sam Altman's blog on how to more be more successful in your life. I am noticing that i am getting more distracted by people that are around me. 
+No work done on my thesis today. I mostly read Sam Altman's blog on how to more be more successful in your life. I am noticing that i am getting more distracted by people that are around me. I am hoping this weekend to get some work done

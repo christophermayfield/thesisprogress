@@ -44,7 +44,11 @@ I have been coughing alot for months. My spirits are starting to get a little do
 
 Reading Sam Altman's blog on How To Be Successful. It's really enlightening. I'm here doing this right now at Sonora HS in La Habra. My main goal this is to be able to develop more self-belief in myself. I know that I am ordained to be able to do more in my life. I just need to harness that and believe more in myself. I am going to go to the gym tonight for a bit then go home and rest since I am not feeling all that great.
 
-
 #February 22nd, 2019
 
-I went through Sam Altman's blog on How To Be Successful again today. I was shocked how little I actually do in my life. Now, I want to change my work habits in order to be a more successful person. 
+I went through Sam Altman's blog on How To Be Successful again today. I was shocked how little I actually do in my life. Now, I want to change my work habits in order to be a more successful person.
+
+
+#February 23rd, 2019
+
+I am feeling a bit better right now. I haven't gone to the doctor regarding the stuff that is going on in my heatlh. 

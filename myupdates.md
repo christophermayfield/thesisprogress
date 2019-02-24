@@ -57,4 +57,6 @@ No work done on my thesis today. I mostly read Sam Altman's blog on how to more 
 
 No work done today. Today I went to Disneyland with Joe. That was pretty fun we ate at his favorite Taqueria.
 
-#February 23rd, 2019 
+#February 23rd, 2019
+
+No work done as of yet. It is currently 4pm PST and I am going to go to Dog Haus with Karina. 

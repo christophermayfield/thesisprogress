@@ -51,4 +51,4 @@ I went through Sam Altman's blog on How To Be Successful again today. I was shoc
 
 #February 23rd, 2019
 
-I am feeling a bit better right now. I haven't gone to the doctor regarding the stuff that is going on in my heatlh. 
+I am feeling a bit better right now. I haven't gone to the doctor regarding the stuff that is going on in my health. 

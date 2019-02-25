@@ -55,5 +55,4 @@ I am feeling a bit better right now. I haven't gone to the doctor regarding the 
 
 #February 25th, 2019
 
-I don't know why, but I am having some onset anxiety. T
-There is no reason to be. 
+I don't know why, but I am having some onset anxiety. There is no reason to be. Maybe I just need to work on myself lmore. 

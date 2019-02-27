@@ -55,4 +55,8 @@ I am feeling a bit better right now. I haven't gone to the doctor regarding the 
 
 #February 25th, 2019
 
-I don't know why, but I am having some onset anxiety. There is no reason to be. Maybe I just need to work on myself more. I'm going to try to add a calculus class today since I need that, but we will see what happens. I just heard that Karina is going to come over, so that is awesome. I didn't end up getting the calc class that I really wanted to in the end. 
+I don't know why, but I am having some onset anxiety. There is no reason to be. Maybe I just need to work on myself more. I'm going to try to add a calculus class today since I need that, but we will see what happens. I just heard that Karina is going to come over, so that is awesome. I didn't end up getting the calc class that I really wanted to in the end.
+
+#February 27th, 2019
+
+Nothing worked on today. I had a real crap show of a job yesterday. 

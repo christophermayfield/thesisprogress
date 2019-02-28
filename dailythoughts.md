@@ -67,4 +67,6 @@ Work was crazy today. I am going to rest tonight and try to get some work done t
 
 #February 28th, 2019
 
-Not eating fast food has been rewarding. The last two days have consisted of just eating salads and whatever. I am subbing at Chino Adult School. I am going to try to get some work done. We will see what happens. I am currently working on my thesis code. I have been scared to finish it for some reason. I have learned that fear is just an emotion that gets in the way of thinking and being your best. 
+Not eating fast food has been rewarding. The last two days have consisted of just eating salads and whatever. I am subbing at Chino Adult School. I am going to try to get some work done. We will see what happens. I am currently working on my thesis code. I have been scared to finish it for some reason. I have learned that fear is just an emotion that gets in the way of thinking and being your best. I want to be the absolute best that I can be. Using my knowledge of building habits and stuff, I want to be better at life and be a better person.
+
+I never realized how much I enjoy peace and quiet. I love going to Arenas and Going to parties

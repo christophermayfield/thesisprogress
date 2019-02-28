@@ -62,3 +62,5 @@ I don't know why, but I am having some onset anxiety. There is no reason to be. 
 Nothing worked on today. I had a real crap show of a job today. Going to work on some work tomorrow. Starting not eating fast food for a little while. Let's see how this affects my health. Will check back soon.
 
 #February 27th, 2019
+
+Work was crazy today. I am 

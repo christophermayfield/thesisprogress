@@ -63,4 +63,4 @@ Nothing worked on today. I had a real crap show of a job today. Going to work on
 
 #February 27th, 2019
 
-Work was crazy today. I am 
+Work was crazy today. I am going to rest tonight and try to get some work done today. 

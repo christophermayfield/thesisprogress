@@ -63,4 +63,8 @@ Nothing worked on today. I had a real crap show of a job today. Going to work on
 
 #February 27th, 2019
 
-Work was crazy today. I am going to rest tonight and try to get some work done today. 
+Work was crazy today. I am going to rest tonight and try to get some work done today.
+
+#February 28th, 2019
+
+Not eating fast food has been rewarding. The last two days have consisted of just eating salads and whatever. I am subbing at Chino Adult School. 

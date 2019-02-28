@@ -67,4 +67,4 @@ Work was crazy today. I am going to rest tonight and try to get some work done t
 
 #February 28th, 2019
 
-Not eating fast food has been rewarding. The last two days have consisted of just eating salads and whatever. I am subbing at Chino Adult School. 
+Not eating fast food has been rewarding. The last two days have consisted of just eating salads and whatever. I am subbing at Chino Adult School. I am going to try to get some work done.

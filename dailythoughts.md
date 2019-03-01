@@ -73,4 +73,4 @@ I never realized how much I enjoy peace and quiet in the home. I love going to A
 
 #March 1st 2019
 
-First day of March. I am excited for this month. I am going to lose a lot of weight and make progress toward my goals. I feel a lot thinner and I think that I am going to continue down this path. I am scared to take on debt. I find myself to be super debt averse. I think that once I get past this fear, i'll be better. I started listening to a podcast which is helping with fear called "The Mission Daily". It has been a tremendous help in terms of alleviating some fears that I have. 
+First day of March. I am excited for this month. I am going to lose a lot of weight and make progress toward my goals. I feel a lot thinner and I think that I am going to continue down this path. I am scared to take on debt. I find myself to be super debt averse. I think that once I get past this fear, i'll be better. I started listening to a podcast which is helping with fear called "The Mission Daily". It has been a tremendous help in terms of alleviating some fears that I have. They might have a three-week sub job over at CVUSD. That would be really nice. 

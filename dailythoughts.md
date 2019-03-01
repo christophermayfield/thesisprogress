@@ -69,4 +69,9 @@ Work was crazy today. I am going to rest tonight and try to get some work done t
 
 Not eating fast food has been rewarding. The last two days have consisted of just eating salads and whatever. I am subbing at Chino Adult School. I am going to try to get some work done. We will see what happens. I am currently working on my thesis code. I have been scared to finish it for some reason. I have learned that fear is just an emotion that gets in the way of thinking and being your best. I want to be the absolute best that I can be. Using my knowledge of building habits and stuff, I want to be better at life and be a better person.
 
-I never realized how much I enjoy peace and quiet in the home. I love going to Arenas and Going to parties and loud don't get me wrong, but my favorite thing is going home and having peace and quiet in the house. I find it interesting that it's how i enjoy things. There is definitely a sense of satisfaction with getting some work done that is meaningful. 
+I never realized how much I enjoy peace and quiet in the home. I love going to Arenas and Going to parties and loud don't get me wrong, but my favorite thing is going home and having peace and quiet in the house. I find it interesting that it's how i enjoy things. There is definitely a sense of satisfaction with getting some work done that is meaningful.
+
+
+#March 1st 2019
+
+First day of March. I am excited for this month. I am going to lose a lot of weight and make progress toward my goals. I feel a lot thinner and I think that I am going to continue down this path. 

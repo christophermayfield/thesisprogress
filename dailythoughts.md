@@ -71,7 +71,6 @@ Not eating fast food has been rewarding. The last two days have consisted of jus
 
 I never realized how much I enjoy peace and quiet in the home. I love going to Arenas and Going to parties and loud don't get me wrong, but my favorite thing is going home and having peace and quiet in the house. I find it interesting that it's how i enjoy things. There is definitely a sense of satisfaction with getting some work done that is meaningful.
 
-
 #March 1st 2019
 
-First day of March. I am excited for this month. I am going to lose a lot of weight and make progress toward my goals. I feel a lot thinner and I think that I am going to continue down this path. 
+First day of March. I am excited for this month. I am going to lose a lot of weight and make progress toward my goals. I feel a lot thinner and I think that I am going to continue down this path. I am scared to take on debt. I find myself to be super debt averse. I think that once I get past this fear, i'll be better. I started listening to a podcast which is helping with fear called "The Mission Daily". It has been a tremendous help in terms of alleviating some fears that I have. 

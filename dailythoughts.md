@@ -73,4 +73,9 @@ I never realized how much I enjoy peace and quiet in the home. I love going to A
 
 #March 1st 2019
 
-First day of March. I am excited for this month. I am going to lose a lot of weight and make progress toward my goals. I feel a lot thinner and I think that I am going to continue down this path. I am scared to take on debt. I find myself to be super debt averse. I think that once I get past this fear, i'll be better. I started listening to a podcast which is helping with fear called "The Mission Daily". It has been a tremendous help in terms of alleviating some fears that I have. They might have a three-week sub job over at CVUSD. That would be really nice. I haven't heard back yet. 
+First day of March. I am excited for this month. I am going to lose a lot of weight and make progress toward my goals. I feel a lot thinner and I think that I am going to continue down this path. I am scared to take on debt. I find myself to be super debt averse. I think that once I get past this fear, i'll be better. I started listening to a podcast which is helping with fear called "The Mission Daily". It has been a tremendous help in terms of alleviating some fears that I have. They might have a three-week sub job over at CVUSD. That would be really nice. I haven't heard back yet.
+
+
+#March 9th 2019
+
+They didn't have the sub job, so that was definitely a bummer. I'm trying to figure out what i want to do with my life. I'm really scared of the fact that companies are really starting to outsource jobs to India and stuff. I know alot of the low end coding work can be done anywhere with no real skillset. I believe this to be true because I have been told that this happens and a lot of the coding work that is being done by a lot of companies is being done by Indians and Eastern Europeans. 
